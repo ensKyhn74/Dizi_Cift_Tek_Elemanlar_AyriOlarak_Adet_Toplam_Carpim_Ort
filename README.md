@@ -1,0 +1,1 @@
+# Dizi_Cift_Tek_Elemanlar_AyriOlarak_Adet_Toplam_Carpim_Ort
